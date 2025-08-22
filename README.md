@@ -13,5 +13,5 @@ This portfolio is meant to serve as a central hub where I can share my work with
 Feel free to explore, and don’t hesitate to reach out with feedback or opportunities!  
 
 Get in contact :
-Email : chitesh.official@gamil.com
+Email : chitesh.official@gmail.com
 Contact : 9667516797 
